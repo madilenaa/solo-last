@@ -1,1 +1,1 @@
-# project-solo
+https://madilenaa.github.io/solo-last/
